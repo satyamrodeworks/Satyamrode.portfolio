@@ -91,9 +91,9 @@ From UI to database, I ensure seamless **integration**, **interactivity**, and *
 
 Feel free to connect — I’m always open to networking, collaboration, and exciting opportunities!
 
-📧 **Email**: satyamrode927@gmail.com  
-📱 **Instagram**: [@iamsatyam_._](https://instagram.com/iamsatyam_._)  
-💼 **LinkedIn**: [Satyam Rode](https://linkedin.com/in/satyamrode)  
+📧 **Email**: satyamrode.works@gmail.com  
+📱 **Instagram**: [@satyam_rode](https://www.instagram.com/satyam_rode?igsh=eHFkY3gzaDZ4YWRk)  
+💼 **LinkedIn**: [Satyam Rode](https://www.linkedin.com/in/satyam-rode-80405a257?utm_source=share&utm_campaign=share_via&utm_content=profile&utm_medium=android_app)  
 🌍 **Location**: Ahmednagar, Maharashtra
 
 ---
